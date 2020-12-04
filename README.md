@@ -1,6 +1,6 @@
 
 ![](pe_readme.gif)
-# paisagem_endodermica
+# paisagem endodérmica
 
 Sala 360° da série de pinturas paisagem endodérmica de Giovana Macedo, 2020.
 
