@@ -4,9 +4,9 @@
 
 Sala 360° da série de pinturas paisagem endodérmica de Giovana Macedo, 2020.
 
-Giovana Macedo: giovanamacedo.com.br
+Giovana Macedo: [giovanamacedo.com.br](giovanamacedo.com.br)
 
-Sala modelada por Fábio Hideki: fabiohideki.com
+Sala modelada por Fábio Hideki: [fabiohideki.com](fabiohideki.com)
 
 __
 
