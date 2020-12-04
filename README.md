@@ -12,6 +12,6 @@ __
 
 360° room for the painting series paisagem endodérmica from Giovana Macedo, 2020.
 
-Giovana Macedo: [giovanamacedo.com.br] (giovanamacedo.com.br)
+Giovana Macedo: [giovanamacedo.com.br](giovanamacedo.com.br)
 
 Room model by Fábio Hideki: [fabiohideki.com](fabiohideki.com)
