@@ -1,2 +1,14 @@
 # paisagem_endodermica
-Sala 360 graus da obra paisagem endodérmica de Giovana Macedo, 2020.
+Sala 360° da série de pinturas paisagem endodérmica de Giovana Macedo, 2020.
+
+Giovana Macedo: giovanamacedo.com.br
+
+Sala modelada por Fábio Hideki: fabiohideki.com
+
+__
+
+360° room for the painting series paisagem endodérmica from Giovana Macedo, 2020.
+
+Giovana Macedo: giovanamacedo.com.br
+
+Room model by Fábio Hideki: fabiohideki.com
